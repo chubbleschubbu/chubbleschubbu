@@ -1,5 +1,5 @@
 # 💫 About Me:
-## Hello, I'm Chubbles<br><br>✨Self-taught Game Developer and Designer <br>🧋Software Developer <br>🍵Web Developer <br>🤓IT Technician
+## Hello, I'm Chubbles<br><br>✨Game Developer and Designer <br>🧋Software Developer <br>🍵Web Developer <br>🤓IT Technician
 
 
 ## 🌐 Socials:
